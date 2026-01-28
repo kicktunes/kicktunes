@@ -2,4 +2,4 @@
 
 
 
-ㅤ![](https://komarev.com/ghpvc/?username=esupuri&style=plastic&color=b83941&label=_　corpses　　&base=748000960040)
+ㅤ![](https://komarev.com/ghpvc/?username=esupuri&style=plastic&color=b83941&label=_　meat slabs　　&base=748000960040)
