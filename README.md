@@ -10,4 +10,4 @@ fandoms : happy tree friends, i have no mouth and i must scream, dave and bambi,
 ㅤ![](https://komarev.com/ghpvc/?username=esupuri&style=plastic&color=b7f100&label=_　meat_slabs　　&base=1223238129328)
 
 
-скоро всё тщательно оформлю бтв 
+скоро всё тщательно оформлю бтв ; also i like to draw yaaaayy!!
