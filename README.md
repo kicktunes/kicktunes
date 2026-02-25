@@ -10,8 +10,7 @@
 ㅤ![](https://komarev.com/ghpvc/?username=esupuri&style=plastic&color=b7f100&label=_　meat_slabs　　&base=1223238129328)
 
 
-<img width="640" height="311" alt="image" src="https://github.com/user-attachments/assets/c577849e-a864-4ca4-9c01-7c4d32e47d2a" />
+<img width="240" height="240" alt="image" src="https://github.com/user-attachments/assets/ef8a00b3-6e49-492c-80a4-9b352de98dc9" />
 
-<img width="523" height="96" alt="image" src="https://github.com/user-attachments/assets/b3b87c33-023a-4052-aaf9-a5ef21cb36de" />
 
 okay, byyyeeee
